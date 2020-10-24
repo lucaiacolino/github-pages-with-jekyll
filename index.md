@@ -1,3 +1,2 @@
-# Welcome to my blog
-
-I'm glad you are here. I plan to talk about ...
+# Luca Iacolino's blog
+Nolan fan, tea sipper, dreams creator.
